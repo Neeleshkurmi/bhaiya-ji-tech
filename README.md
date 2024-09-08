@@ -1,0 +1,2 @@
+# bhaiya-ji-tech
+i am here to make some contribution in tech. every project that i will includes in future all open resource.
